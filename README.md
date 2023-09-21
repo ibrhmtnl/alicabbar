@@ -1,2 +1,0 @@
-# alicabbar
-cabbarelhasimi
